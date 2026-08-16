@@ -1,0 +1,1 @@
+# fik-blogger-images
